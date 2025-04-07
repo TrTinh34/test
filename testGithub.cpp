@@ -1,1 +1,1 @@
-/*"trungtinh hoasen universitdjhga;hgy"*/
+/*"trung tính sai đẹp chiêu"*/
